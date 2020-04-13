@@ -1,2 +1,2 @@
 # GalacticScience
-galacticgalacticgalacticgalacticgalacticgalacticgalacticgalacticgalactictest
+galacticgalacticgalacticgalacticgalacticgalacticgalacticgalacticgalactic
